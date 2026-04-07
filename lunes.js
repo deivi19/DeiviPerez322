@@ -1,1 +1,1 @@
-primer intentohdhgd
+primer intentohdhgd (deivi)
